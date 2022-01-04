@@ -1,4 +1,4 @@
-👋 Yo, I’m Ryszard C. (for English speakers: Richard) aka @Beridok - but since we're online, use nickname, unless you mean official business.
+👋 Yo, I’m Ryszard C. aka @Beridok - but since we're online, use nickname, unless you mean official business.
 
 ## Programming
 
